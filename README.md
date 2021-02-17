@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @jlmiller0818
+- 👀 I’m interested in global refugee healthcare access.
+- 🌱 I’m currently studying medicine at Medical College of WI.
+- 📫 How to reach me: jlmiller@mcw.edu
